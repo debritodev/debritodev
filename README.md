@@ -1,2 +1,2 @@
 ![Discord](https://img.shields.io/discord/308323056592486420?style=for-the-badge)
-![sdsdsd](https://custom-icon-badges.demolab.com/badge/-hermione@spew.co.uk-red?style=for-the-badge&logo=mention&logoColor=white)
+![Email](https://custom-icon-badges.demolab.com/badge/-carlosbritocut@gmail.comred?style=for-the-badge&logo=mention&logoColor=white)
